@@ -35,11 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The playe called the foure PP. A newe and a very mery enterlude of A palmer. A pardoner. A potycary.
+
 #####Body#####
-The playe called the foure PP. A newe and a very mery enterlude of A palmer. A pardoner. A potycary.
+❧Palmer.NOwe god be here who kepeth this placeNow by my fayth I crye you mercyOf reaſon I muſt ſew f
 #####Back#####
-The playe called the foure PP. A newe and a very mery enterlude of A palmer. A pardoner. A potycary.
+¶Imprynted at London in Fleteſtrete at the ſygne of the George by Wyllyam Myddylton ⸫printer's or pu
 **Types of content**
 
   * There are 1234 **verse** lines!
